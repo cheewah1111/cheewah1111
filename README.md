@@ -9,7 +9,7 @@
 
 - 🌱 I’m a SOFTWARE ENGINEERING (SECJH) STUDENT **in UTM.**
 
-- ⚡ I participated in KANGAROO MATH COMPETITION MALAYSIA 2022 **and got a BRONZE REWARD.**
+- ⚡ I participated in KANGAROO MATH COMPETITION MALAYSIA 2022 **and got a BRONZE AWARD.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
