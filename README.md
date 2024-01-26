@@ -5,7 +5,7 @@
 
 - 🤝 I’m a **JOHOREAN.**
 
-- 💬 Ask me about **something.**
+- 💬 Ask me about **anything.**
 
 - 🌱 I’m a SOFTWARE ENGINEERING (SECJH) STUDENT **in UTM.**
 
